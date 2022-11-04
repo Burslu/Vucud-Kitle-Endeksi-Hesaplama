@@ -1,0 +1,1 @@
+# Vucud-Kitle-Endeksi-Hesaplama
